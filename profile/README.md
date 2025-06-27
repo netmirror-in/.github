@@ -1,10 +1,10 @@
-# Net mirror 𝐀𝐏𝐊 v3.0 Download Official Version (Android, iOS, TV and PC)
+# Net Mirror 𝐀𝐏𝐊 v3.0 Download Official Version (Android, iOS, TV and PC)
 
 ## What Is Net Mirror?
 
 **Net Mirror** is a super cool Android app that brings together movies, TV shows, anime, and more — all in one place! It works like a magical mirror, showing content from top platforms like Netflix, Disney+, Prime Video, and others, so you can enjoy your favorite entertainment without switching between tons of apps.
 
-## [Download Net mirror v3.0](https://sites.google.com/view/net-mirror-download/home)
+## [Download NetMirror v3.0](https://sites.google.com/view/net-mirror-download/home)
 
 ---
 
